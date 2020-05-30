@@ -1,3 +1,3 @@
 # hello-world.
-Seja em vindos
-Olá , sou Paulo vinicius iniciante a  GitHub, conto com ajuda de todos desde ja agradeço.
+Seja  bem  vinddos
+Olá , sou Paulo vinicius iniciante a  GitHub, conto com  ajudas  de todos .
